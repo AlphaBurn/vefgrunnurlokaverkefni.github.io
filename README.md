@@ -1,1 +1,0 @@
-# vefgrunnurlokaverkefni.github.io
